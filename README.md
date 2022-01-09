@@ -1,1 +1,1 @@
-# Heavy-MAchines-VR-EG
+# Heavy-Machines-VR-EG
